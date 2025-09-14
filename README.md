@@ -1,3 +1,3 @@
 # srujan-demo
 this is my first repository
-naanu srujan
+aram yen appa srujan yen samachara
